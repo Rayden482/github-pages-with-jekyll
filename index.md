@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Hello how are you"
 ---
 
-I'm glad you are here. I plan to talk about ...
+I am under da water plz help me here too much raining bulululu...
